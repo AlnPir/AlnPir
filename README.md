@@ -1,4 +1,4 @@
-Hi, I’m Alan PIERRE, aka @AlnPir. I'm in my final year of cyber defense engineering.🎓
+Hi, I’m Alan PIERRE. I'm in my final year of cyber defense engineering.🎓
 
 Currently, I'm :
 
